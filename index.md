@@ -12,3 +12,6 @@ As Grandma said:
 
 > It has always seemed to me that a coward is a person who cares more about what people say than about
 > what is right. Bravery isn't about what people call you, Spensa. It's about who you know yourself to be.
+
+
+<img src="https://commons.wikimedia.org/wiki/File:Stardust_(early_1960s_postcard).png"/>
