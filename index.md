@@ -1,1 +1,1 @@
-A website for my favourite character is currently being built here!
+# Spensa - Hope, sacrifice, and courage overcome status and money
